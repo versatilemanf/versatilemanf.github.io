@@ -1,2 +1,2 @@
 # versatilemanf.github.io
-Contact us - https://github.com/versatilemanf
+Contact - https://github.com/versatilemanf
